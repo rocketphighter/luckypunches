@@ -7,7 +7,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#527CAE}{\textsf{they/any , 15yo}}$
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#527CAE}{\textsf{i love}}$ [rocket phighting](https://phighting.wiki/Rocket)  $\color{#FFBF00}{\textsf{and}}$ [taph forsaken](https://forsaken.wiki/Taph)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#527CAE}{\textsf{i love}}$ [rocket phighting](https://phighting.wiki/Rocket)  $\color{#FFBF00}{\textsf{and}}$ [taph forsaken](https://forsaken.wiki/Taph)
 
 
 
