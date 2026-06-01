@@ -9,6 +9,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#527CAE}{\textsf{i love rocket phighting sm}}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#527CAE}{\textsf{dni:}}$ [click here](https://dni-criteria.carrd.co/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#527CAE}{\textsf{dni:}}$ [click here](https://dni-criteria.carrd.co/)
 
 
